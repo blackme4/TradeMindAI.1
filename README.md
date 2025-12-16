@@ -1,0 +1,1 @@
+# TradeMindAI.1
